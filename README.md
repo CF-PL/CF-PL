@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CF-PL
+- 👀 I’m interested in games and coding
+- 🌱 I’m currently learning html
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I liek coconut water
