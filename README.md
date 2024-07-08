@@ -4,3 +4,4 @@
 - 🌱 I’m currently learning html
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I liek coconut water
+||POLSKA GÓROM||
